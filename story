@@ -1,0 +1,1 @@
+Guru Asked Vikram to bring Betal in his royal court.
